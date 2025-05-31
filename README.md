@@ -1,6 +1,7 @@
  Hi, I’m Satyam Rai — a passionate supply chain professional, entrepreneur, and lifelong learner.
 
-🌱 My journey began in India, where I earned my Bachelor’s in Business Administration and gained over three years of experience managing logistics and operations as Assistant Manager at Transwide Express Cargo Pvt. Ltd. Alongside, I run my own business, navigating the dynamic world of trade and supply with an entrepreneurial spirit.
+🌱 My journey began in India, where I earned my Bachelor’s in Business Administration and gained over three years of experience managing logistics and operations as Assistant Manager at India's No.-1 Logistics and Supply Chain company.
+Alongside, I run my own business, navigating the dynamic world of trade and supply with an entrepreneurial spirit.
 
 🎓 Currently, I’m pursuing a master’s degree in Supply Chain and Logistics at Leeds Beckett University, blending my business experience with advanced analytical and tech skills.
 
